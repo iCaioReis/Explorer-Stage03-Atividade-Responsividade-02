@@ -1,0 +1,1 @@
+# Explorer-Stage03-Atividade-Responsividade-02
